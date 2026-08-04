@@ -11,4 +11,4 @@ M.Sc. Computer Science (AI/ML) student at Leibniz Universität Hannover, applyin
 ## Contact
 
 - Email: aritrasaha33@gmail.com
-- LinkedIn: linkedin.com/in/aritrasaha06
+- LinkedIn: [https://www.linkedin.com/in/aritrasaha06/]
